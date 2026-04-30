@@ -1,0 +1,1 @@
+# TCL-IPTV-Player-Privacy-Policy
